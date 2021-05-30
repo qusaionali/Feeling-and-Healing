@@ -1,0 +1,2 @@
+# Feeling-and-Healing
+Mental health is a level of psychological well-being or an absence of mental illness. It's the psychological state of someone who is functioning at a satisfactory level of emotional and behavioural adjustment.  It includes subjective well-being, perceived self-efficacy, autonomy, competence, inter-generational dependence, and self-actualization of one's intellectual and emotional potential, among others.
